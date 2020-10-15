@@ -1,0 +1,1 @@
+In this folder there are all the screnshoots that assess the exercises I did.
